@@ -1,1 +1,1 @@
-> I took on mountain climbing 🧗 and trading 📈
+> I took on mountain climbing 🧗
